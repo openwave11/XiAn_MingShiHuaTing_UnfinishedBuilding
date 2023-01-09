@@ -195,6 +195,10 @@ https://raw.fastgit.org/openwave11/markdown-pic/main/doc/20220707名仕华庭二
 
 ![image-20221208181451033](https://raw.fastgit.org/openwave11/markdown-pic/main/img/image-20221208181451033.png)
 
-23.2022年12月08日-对于现在管理人要求补款，按揭的大概想法就是这样
+## 23.2022年12月08日-对于现在管理人要求补款，按揭的大概想法就是这样
 
 ![image-20221208181620790](https://raw.fastgit.org/openwave11/markdown-pic/main/img/image-20221208181620790.png)
+
+## 24.2023年1月07日-管理人发布要求补全款补充公告，缴款时间延长到2023年2月22日
+
+![2023年1月07日-管理人发布要求补全款补充公告，缴款时间延长到2023年2月22日](https://raw.fastgit.org/openwave11/markdown-pic/main/img/2023%E5%B9%B41%E6%9C%8807%E6%97%A5-%E7%AE%A1%E7%90%86%E4%BA%BA%E5%8F%91%E5%B8%83%E8%A6%81%E6%B1%82%E8%A1%A5%E5%85%A8%E6%AC%BE%E8%A1%A5%E5%85%85%E5%85%AC%E5%91%8A%EF%BC%8C%E7%BC%B4%E6%AC%BE%E6%97%B6%E9%97%B4%E5%BB%B6%E9%95%BF%E5%88%B02023%E5%B9%B42%E6%9C%8822%E6%97%A5.jpg)
